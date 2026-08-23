@@ -1,6 +1,6 @@
 <img width="1300"  alt="930" src="https://github.com/user-attachments/assets/5e4349e8-f7e6-46d6-84cb-1b532ad72b59" />
 <img width="1280"  alt="929" src="https://github.com/user-attachments/assets/cc8bbddd-77be-4237-b904-a6a0ac91021f" />
-<img width="400"  alt="928" src="https://github.com/user-attachments/assets/287ced27-e529-4014-8448-b722f95dfd9b" />
+<img width="1300"  alt="928" src="https://github.com/user-attachments/assets/287ced27-e529-4014-8448-b722f95dfd9b" />
 <div align="center">
 <p align="center">
 <a href="https://hits.sh/github.com/staticAngels/"><img alt="Hits" src="https://hits.sh/github.com/staticAngels.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=DEDADD&labelColor=9190BC"/></a>
