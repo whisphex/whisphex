@@ -9,14 +9,14 @@
 <img align="left" 
 src="https://files.catbox.moe/ryozpl.png" alt="decor img" width="50%"/> 
   
-$\color{#9190BC}{\textsf{but}}$ $\color{#DEDADD}{\textsf{I}}$ $\color{#9190BC}{\textsf{can}}$ $\color{#DEDADD}{\textsf{take}}$ $\color{#9190BC}{\textsf{it}}$ $\color{#DEDADD}{\textsf{if}}$ $\color{#9190BC}{\textsf{you}}$ $\color{#DEDADD}{\textsf{really}}$ $\color{#9190BC}{\textsf{wanna}}$ $\color{#DEDADD}{\textsf{go}}$ $\color{#9190BC}{\textsf{oh—}}$
+$\color{#9190BC}{\textsf{Eddi}}$ $\color{#DEDADD}{\textsf{ou}}$ $\color{#9190BC}{\textsf{Eddie}}$ $\color{#DEDADD}{\textsf{,}}$ $\color{#9190BC}{\textsf{pansexual}}$ $\color{#DEDADD}{\textsf{and}}$ $\color{#9190BC}{\textsf{bigender}}$ $\color{#DEDADD}{\textsf{!!}}$ $\color{#9190BC}{\textsf{in}}$ $\color{#DEDADD}{\textsf{a}}$ $\color{#9190BC}{\textsf{poly}}$ $\color{#DEDADD}{\textsf{relationship}}$ $\color{#9190BC}{\textsf{please}}$ $\color{#DEDADD}{\textsf{do}}$ $\color{#9190BC}{\textsf{not}}$ $\color{#DEDADD}{\textsf{flirt}}$ $\color{#9190BC}{\textsf{in}}$ $\color{#DEDADD}{\textsf{a}}$ $\color{#9190BC}{\textsf{serious}}$ $\color{#DEDADD}{\textsf{way}}$ $\color{#9190BC}{\textsf{!!}}$ $\color{#DEDADD}{\textsf{no}}$ $\color{#9190BC}{\textsf{dni}}$ $\color{#DEDADD}{\textsf{just}}$ $\color{#9190BC}{\textsf{do}}$ $\color{#DEDADD}{\textsf{not}}$ $\color{#9190BC}{\textsf{cover}}$ $\color{#DEDADD}{\textsf{my}}$ $\color{#9190BC}{\textsf{ponies}}$ $\color{#DEDADD}{\textsf{or}}$ $\color{#9190BC}{\textsf{anything}}$ $\color{#DEDADD}{\textsf{,}}$ $\color{#9190BC}{\textsf{my}}$ $\color{#DEDADD}{\textsf{interests}}$ $\color{#9190BC}{\textsf{are}}$ $\color{#DEDADD}{\textsf{mcyt}}$ $\color{#9190BC}{\textsf{,}}$ $\color{#DEDADD}{\textsf{pokemon}}$ $\color{#9190BC}{\textsf{and}}$ $\color{#DEDADD}{\textsf{allat}}$ $\color{#9190BC}{\textsf{Im}}$ $\color{#DEDADD}{\textsf{too}}$ $\color{#9190BC}{\textsf{lazy}}$ $\color{#DEDADD}{\textsf{sorry}}$ $\color{#9190BC}{\textsf{.}}$
 
 <table>
   <tr>
     <td>
       <img src="https://files.catbox.moe/bc17v8.png" width="22">
- ִֶָ♡་༘ $\color{#9190BC}{\textsf{—baby}}$ $\color{#DEDADD}{\textsf{Doll}}$ $\color{#9190BC}{\textsf{I}}$ $\color{#DEDADD}{\textsf{can't}}$ $\color{#9190BC}{\textsf{move}}$ $\color{#DEDADD}{\textsf{on}}$ $\color{#9190BC}{\textsf{.}}$ 
+ ִֶָ♡་༘ $\color{#9190BC}{\textsf{fiction}}$ $\color{#DEDADD}{\textsf{kin}}$ $\color{#9190BC}{\textsf{with}}$ $\color{#DEDADD}{\textsf{diagnosed}}$ $\color{#9190BC}{\textsf{ADHD}}$ 
     </td>
   </tr>
 </table>
-<img width="1280" height="400" alt="932" src="https://github.com/user-attachments/assets/5a4fc88f-c7f9-48ec-a5f9-5fd2a170d3d1" />
+<img width="1280" alt="932" src="https://github.com/user-attachments/assets/5a4fc88f-c7f9-48ec-a5f9-5fd2a170d3d1" />
